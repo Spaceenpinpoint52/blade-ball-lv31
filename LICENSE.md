@@ -1,4 +1,4 @@
-#  
+#  advanced Script for blade ball is the best blade ball Script, featuring aimbot and no cooldown. Safe and powerful for all your needs.
 
 
 
